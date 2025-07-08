@@ -1,4 +1,4 @@
-# ✅ Complete Guide: How to Do More Than 10 ( Exmaple 15 ) In GitHub Commits Before 10 Jioy ( Exmaple 10 June ) (Zama Eligible)
+# ✅ Complete Guide: How to Do More Than 10 Commits In GitHub Before 10 July ( Exmaple 10 June ) (Zama Eligible)
 
 This guide helps you complete **10 GitHub commits** easily using **GitHub Codespaces** — so that you can participate in the **Zama Developer Program**: [https://x.com/EarnByAbhi/status/1940383606758842679?t=ssWyWOk0gNPsVHcDEQnP4Q&s=19](https://x.com/EarnByAbhi/status/1940383606758842679?t=ssWyWOk0gNPsVHcDEQnP4Q&s=19)
 
